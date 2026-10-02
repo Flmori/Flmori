@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Flm Ori (a.k.a. bin_mori)
+# 👋 Hi, I'm Flm Ori (a.k.a. Bintang Putra Nagari)
 
 🌐 [Instagram: @bin_mori](https://www.instagram.com/bin_mori/)  
 💻 GitHub: [github.com/Flmori](https://github.com/Flmori)
